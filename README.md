@@ -27,3 +27,8 @@ https://vm.tiktok.com/ZMFeRk3kE/
 All in one funnel
 https://systeme.io/
 https://vm.tiktok.com/ZMFeRd4cU/
+
+
+Youtube summarizer
+https://quillbot.com/summarize
+https://vm.tiktok.com/ZMFeRYmHb/
