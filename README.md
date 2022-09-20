@@ -42,3 +42,7 @@ https://vm.tiktok.com/ZMFeRJ8XT/
 Removes noise from sound audio
 https://pages.adobe.com/shasta/
 https://vm.tiktok.com/ZMFJsxmfa/
+
+Anwser questions in quora
+https://trialjasper.com/
+https://vm.tiktok.com/ZMFJsuhTD/
