@@ -32,3 +32,9 @@ https://vm.tiktok.com/ZMFeRd4cU/
 Youtube summarizer
 https://quillbot.com/summarize
 https://vm.tiktok.com/ZMFeRYmHb/
+
+web insperation 
+https://www.awwwards.com/
+https://www.lapa.ninja/
+https://www.landingfolio.com/
+https://vm.tiktok.com/ZMFeRJ8XT/
