@@ -38,3 +38,7 @@ https://www.awwwards.com/
 https://www.lapa.ninja/
 https://www.landingfolio.com/
 https://vm.tiktok.com/ZMFeRJ8XT/
+
+Removes noise from sound audio
+https://pages.adobe.com/shasta/
+https://vm.tiktok.com/ZMFJsxmfa/
