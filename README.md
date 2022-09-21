@@ -55,3 +55,8 @@ https://vm.tiktok.com/ZMFeeaSd1/
 Trying to understand a new codebase? Let Documatic translate and create diagrams to help you out
 https://www.documatic.com/
 https://vm.tiktok.com/ZMFeeqrGU/
+
+
+scrape data from youtube
+https://phantombuster.com/
+https://vm.tiktok.com/ZMFeJVtuc/
