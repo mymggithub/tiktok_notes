@@ -141,3 +141,7 @@ https://grow.google/certificates/data-analytics/#?modal_active=none
 https://grow.google/certificates/it-support/#?modal_active=none
 https://vm.tiktok.com/ZMFJ4Yw57/
 https://vm.tiktok.com/ZMFJ4AVe4/
+
+FREE custom automation tool to scrape data
+https://www.bardeen.ai/
+https://vm.tiktok.com/ZMFJ4LDP6/
