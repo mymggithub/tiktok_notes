@@ -174,3 +174,7 @@ https://weworkremotely.com/
 https://www.workingnomads.com/jobs
 https://remoteineurope.com/
 https://vm.tiktok.com/ZMFJXb1Uw/
+
+Place to download software
+https://igetintopc.com/
+https://vm.tiktok.com/ZMFJXGpSu/
