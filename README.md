@@ -264,3 +264,11 @@ https://www.coursera.org/professional-certificates/meta-front-end-developer
 https://www.coursera.org/professional-certificates/meta-back-end-developer
 https://www.coursera.org/professional-certificates/meta-database-engineer
 https://vm.tiktok.com/ZMFJsmttv/
+
+
+
+Learn programming threw making games
+https://www.codemonkey.com/
+https://codecombat.com/
+https://www.codingame.com/start
+https://vm.tiktok.com/ZMFJp8ERs/
