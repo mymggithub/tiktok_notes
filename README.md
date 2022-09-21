@@ -163,6 +163,8 @@ https://vocalremover.org/
 https://vm.tiktok.com/ZMFJXKA2M/
 
 
- Amazon price tracker
- https://es.camelcamelcamel.com/
- https://vm.tiktok.com/ZMFJXv6S3/
+PrivnoteSend notes that will self-destruct after being read.
+https://privnote.com/
+Amazon price tracker
+https://es.camelcamelcamel.com/
+https://vm.tiktok.com/ZMFJXv6S3/
