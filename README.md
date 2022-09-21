@@ -224,3 +224,11 @@ https://vm.tiktok.com/ZMFJQV1kX/
 Animate drawings
 https://sketch.metademolab.com/
 https://vm.tiktok.com/ZMFJCTSMg/
+
+Welcome to Quiver, a next-generation stock research platform for retail investors.
+https://www.quiverquant.com/
+Your All-In-One Business Dashboard
+https://www.siteright.co/
+Hunter lets you find professional email addresses in seconds
+https://hunter.io/
+https://vm.tiktok.com/ZMFJCCDm7/
