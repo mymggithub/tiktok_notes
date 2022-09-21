@@ -241,3 +241,8 @@ https://vm.tiktok.com/ZMFJt2CHt/
 Writing Assistant
 https://paragraphai.com/
 https://vm.tiktok.com/ZMFJCqEhV/
+
+
+Create CSS Animation Instantly
+https://chrome.google.com/webstore/detail/css-brio/jobnjchaapmooplimahhnailldelmmed
+https://vm.tiktok.com/ZMFeJ3eQE/
