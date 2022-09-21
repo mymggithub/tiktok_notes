@@ -214,3 +214,9 @@ https://vm.tiktok.com/ZMFJXHyPB/
 All-in-one audio & video editing, as easy as a doc.
 https://www.descript.com/
 https://vm.tiktok.com/ZMFJx3JtH/
+
+
+https://www.hacksplaining.com/
+https://shiftsearch.com/
+https://www.beautiful.ai/
+https://vm.tiktok.com/ZMFJQV1kX/
