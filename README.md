@@ -161,3 +161,8 @@ https://vm.tiktok.com/ZMFJXbJS5/
 Vocal remover
 https://vocalremover.org/
 https://vm.tiktok.com/ZMFJXKA2M/
+
+
+ Amazon price tracker
+ https://es.camelcamelcamel.com/
+ https://vm.tiktok.com/ZMFJXv6S3/
