@@ -257,3 +257,10 @@ Create beautiful emails and landing pages, fast.
 https://beefree.io/
 https://dronestock.com/
 https://vm.tiktok.com/ZMFeJJGvu/
+
+Facebook courses
+https://www.coursera.org/meta
+https://www.coursera.org/professional-certificates/meta-front-end-developer
+https://www.coursera.org/professional-certificates/meta-back-end-developer
+https://www.coursera.org/professional-certificates/meta-database-engineer
+https://vm.tiktok.com/ZMFJsmttv/
