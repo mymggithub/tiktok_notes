@@ -134,3 +134,8 @@ https://vm.tiktok.com/ZMFJpAq98/
 MIT Open Courses
 https://ocw.mit.edu/
 https://vm.tiktok.com/ZMFJ4hao9/
+
+Grow With Google
+https://grow.google/certificates/data-analytics/#?modal_active=none
+https://grow.google/certificates/it-support/#?modal_active=none
+https://vm.tiktok.com/ZMFJ4Yw57/
