@@ -246,3 +246,8 @@ https://vm.tiktok.com/ZMFJCqEhV/
 Create CSS Animation Instantly
 https://chrome.google.com/webstore/detail/css-brio/jobnjchaapmooplimahhnailldelmmed
 https://vm.tiktok.com/ZMFeJ3eQE/
+
+
+Look at sytems
+https://www.designsystems.com/open-design-systems/
+https://vm.tiktok.com/ZMFeJ79xc/
