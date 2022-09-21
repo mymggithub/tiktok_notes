@@ -220,3 +220,7 @@ https://www.hacksplaining.com/
 https://shiftsearch.com/
 https://www.beautiful.ai/
 https://vm.tiktok.com/ZMFJQV1kX/
+
+Animate drawings
+https://sketch.metademolab.com/
+https://vm.tiktok.com/ZMFJCTSMg/
