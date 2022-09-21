@@ -168,3 +168,9 @@ https://privnote.com/
 Amazon price tracker
 https://es.camelcamelcamel.com/
 https://vm.tiktok.com/ZMFJXv6S3/
+
+Check out these job boards for global opportunities! 
+https://weworkremotely.com/
+https://www.workingnomads.com/jobs
+https://remoteineurope.com/
+https://vm.tiktok.com/ZMFJXb1Uw/
