@@ -33,6 +33,11 @@ Youtube summarizer
 https://quillbot.com/summarize
 https://vm.tiktok.com/ZMFeRYmHb/
 
+ai software thag is torally gong to revolutionize how we communicate
+Clones ppl
+https://synthesia.io/
+https://vm.tiktok.com/ZMFJpLQQv/
+
 
 web insperation 
 https://www.awwwards.com/
