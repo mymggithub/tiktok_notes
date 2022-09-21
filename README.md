@@ -67,3 +67,8 @@ search cyber security basics
 https://www.ibm.com/skills/topics/cybersecurity/
 https://www.cybrary.it/
 https://vm.tiktok.com/ZMFeJFDQa/
+
+
+How to plan YouTube videos without showing your face
+https://www.jasper.ai/
+https://vm.tiktok.com/ZMFJsQvBn/
