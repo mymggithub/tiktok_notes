@@ -50,3 +50,8 @@ https://vm.tiktok.com/ZMFJsuhTD/
 Find the owner of a phone now
 https://intelx.io/
 https://vm.tiktok.com/ZMFeeaSd1/
+
+
+Trying to understand a new codebase? Let Documatic translate and create diagrams to help you out
+https://www.documatic.com/
+https://vm.tiktok.com/ZMFeeqrGU/
