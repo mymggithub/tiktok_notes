@@ -33,9 +33,7 @@ Youtube summarizer
 https://quillbot.com/summarize
 https://vm.tiktok.com/ZMFeRYmHb/
 
-Game to similate working for a company
-trywilco.com/allthecode
-https://vm.tiktok.com/ZMFJgvSne/
+
 web insperation 
 https://www.awwwards.com/
 https://www.lapa.ninja/
@@ -110,3 +108,7 @@ https://vm.tiktok.com/ZMFJpyHGr/
 Land your dream job at a top tech company (mentors)
 https://www.pathrise.com/
 https://vm.tiktok.com/ZMFJ4Pu5c/
+
+Game to similate working for a company
+trywilco.com/allthecode
+https://vm.tiktok.com/ZMFJgvSne/
