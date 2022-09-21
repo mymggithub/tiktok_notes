@@ -90,3 +90,7 @@ https://vm.tiktok.com/ZMFJsprQD/
 
 https://infogram.com/
 https://vm.tiktok.com/ZMFJsqhEU/
+
+automation to watch a website
+https://urlooker.com/
+https://vm.tiktok.com/ZMFJpFSE5/
