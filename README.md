@@ -130,3 +130,7 @@ https://pixelhunter.io/
 https://squoosh.app/
 https://knowem.com/
 https://vm.tiktok.com/ZMFJpAq98/
+
+MIT Open Courses
+https://ocw.mit.edu/
+https://vm.tiktok.com/ZMFJ4hao9/
