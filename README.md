@@ -60,3 +60,9 @@ https://vm.tiktok.com/ZMFeeqrGU/
 scrape data from youtube
 https://phantombuster.com/
 https://vm.tiktok.com/ZMFeJVtuc/
+
+Cyber Security
+https://www.edx.org/
+search cyber security basics
+https://www.ibm.com/skills/topics/cybersecurity/
+https://www.cybrary.it/
