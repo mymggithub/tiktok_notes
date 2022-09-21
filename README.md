@@ -187,3 +187,7 @@ https://create.vista.com/
 https://fronty.com/
 https://phase.com/
 https://vm.tiktok.com/ZMFJXEodU/
+
+Get title ideas
+https://www.title-generator.com/
+https://vm.tiktok.com/ZMFJXQRT8/
