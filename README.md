@@ -178,3 +178,12 @@ https://vm.tiktok.com/ZMFJXb1Uw/
 Place to download software
 https://igetintopc.com/
 https://vm.tiktok.com/ZMFJXGpSu/
+
+
+6 Design Gems for design
+https://nicepage.com/
+https://superdesigner.co/
+https://create.vista.com/
+https://fronty.com/
+https://phase.com/
+https://vm.tiktok.com/ZMFJXEodU/
