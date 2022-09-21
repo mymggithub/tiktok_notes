@@ -33,6 +33,10 @@ Youtube summarizer
 https://quillbot.com/summarize
 https://vm.tiktok.com/ZMFeRYmHb/
 
+Pictory's powerful Artificial intelligence (AI) enables you to create and edit professional quality videos using text
+https://pictory.ai/
+https://vm.tiktok.com/ZMFJ4ATkr/
+
 ai software thag is torally gong to revolutionize how we communicate
 Clones ppl
 https://synthesia.io/
