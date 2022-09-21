@@ -33,6 +33,9 @@ Youtube summarizer
 https://quillbot.com/summarize
 https://vm.tiktok.com/ZMFeRYmHb/
 
+Game to similate working for a company
+trywilco.com/allthecode
+https://vm.tiktok.com/ZMFJgvSne/
 web insperation 
 https://www.awwwards.com/
 https://www.lapa.ninja/
