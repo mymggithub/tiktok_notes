@@ -103,3 +103,7 @@ https://vm.tiktok.com/ZMFJpaq12/
 AI for making pictures
 https://www.craiyon.com/
 https://vm.tiktok.com/ZMFJpyHGr/
+
+Land your dream job at a top tech company (mentors)
+https://www.pathrise.com/
+https://vm.tiktok.com/ZMFJ4Pu5c/
