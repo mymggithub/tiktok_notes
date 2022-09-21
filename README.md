@@ -99,3 +99,7 @@ https://vm.tiktok.com/ZMFJpFSE5/
 allows you to learn anything you want with roadmaps
 https://neuton.app/
 https://vm.tiktok.com/ZMFJpaq12/
+
+AI for making pictures
+https://www.craiyon.com/
+https://vm.tiktok.com/ZMFJpyHGr/
