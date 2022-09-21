@@ -209,3 +209,8 @@ https://vm.tiktok.com/ZMFJX5pKA/
 Create Hook ups
 https://www.copy.ai/
 https://vm.tiktok.com/ZMFJXHyPB/
+
+
+All-in-one audio & video editing, as easy as a doc.
+https://www.descript.com/
+https://vm.tiktok.com/ZMFJx3JtH/
