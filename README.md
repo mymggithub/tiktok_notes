@@ -117,3 +117,12 @@ https://vm.tiktok.com/ZMFJ4Pu5c/
 Game to similate working for a company
 trywilco.com/allthecode
 https://vm.tiktok.com/ZMFJgvSne/
+
+
+websites that feel illegal to know because thy do some crazy things Taylorbrands.com, create a professional brand logo in in under a few minutes.
+https://www.tailorbrands.com/
+https://undraw.co/
+https://pixelhunter.io/
+https://squoosh.app/
+https://knowem.com/
+https://vm.tiktok.com/ZMFJpAq98/
