@@ -205,3 +205,7 @@ https://clipdrop.co/
 The easiest way to extract and monitor data from any website.
 https://www.browse.ai/
 https://vm.tiktok.com/ZMFJX5pKA/
+
+Create Hook ups
+https://www.copy.ai/
+https://vm.tiktok.com/ZMFJXHyPB/
