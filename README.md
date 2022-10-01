@@ -38,7 +38,7 @@ https://vm.tiktok.com/ZMFeRYmHb/
 
 https://vm.tiktok.com/ZMFJ4ATkr/
 
-### AI software thag is torally gong to revolutionize how we communicate
+### AI software thag is totally gong to revolutionize how we communicate
 Clones ppl - ([synthesia](https://synthesia.io/))
 
 https://vm.tiktok.com/ZMFJpLQQv/
