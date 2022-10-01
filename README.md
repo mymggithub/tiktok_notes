@@ -44,7 +44,7 @@ Clones ppl - ([synthesia](https://synthesia.io/))
 https://vm.tiktok.com/ZMFJpLQQv/
 
 
-### web insperation 
+### Web insperation 
  - [awwwards](https://www.awwwards.com/)
  - [lapa.ninja](https://www.lapa.ninja/)
  - [landingfolio](https://www.landingfolio.com/)
@@ -69,13 +69,13 @@ https://vm.tiktok.com/ZMFeeaSd1/
 https://vm.tiktok.com/ZMFeeqrGU/
 
 
-### scrape data from youtube - ([phantombuster](https://phantombuster.com/))
+### Scrape data from youtube - ([phantombuster](https://phantombuster.com/))
 
 https://vm.tiktok.com/ZMFeJVtuc/
 
 ### Cyber Security
  - [edx](https://www.edx.org/)
-### search cyber security basics
+### Search cyber security basics
  - [ibm](https://www.ibm.com/skills/topics/cybersecurity/)
  - [cybrary](https://www.cybrary.it/)
 
@@ -108,12 +108,12 @@ https://vm.tiktok.com/ZMFJsprQD/
 
 https://vm.tiktok.com/ZMFJsqhEU/
 
-### automation to watch a website - ([urlooker](https://urlooker.com/))
+### Automation to watch a website - ([urlooker](https://urlooker.com/))
 
 https://vm.tiktok.com/ZMFJpFSE5/
 
 
-### allows you to learn anything you want with roadmaps - ([neuton.app](https://neuton.app/))
+### Allows you to learn anything you want with roadmaps - ([neuton.app](https://neuton.app/))
 
 https://vm.tiktok.com/ZMFJpaq12/
 
@@ -132,7 +132,7 @@ trywilco.com/allthecode
 https://vm.tiktok.com/ZMFJgvSne/
 
 
-### websites that feel illegal to know because thy do some crazy things Taylorbrands.com, create a professional brand logo in in under a few minutes.
+### Websites that feel illegal to know because thy do some crazy things Taylorbrands.com, create a professional brand logo in in under a few minutes.
  - [tailorbrands](https://www.tailorbrands.com/)
  - [undraw.co](https://undraw.co/)
  - [pixelhunter.io](https://pixelhunter.io/)
@@ -158,7 +158,7 @@ https://vm.tiktok.com/ZMFJ4AVe4/
 
 https://vm.tiktok.com/ZMFJ4LDP6/
 
-### adds socail media in your website as a popup - ([getchipbot](https://getchipbot.com/))
+### Adds socail media in your website as a popup - ([getchipbot](https://getchipbot.com/))
 
 https://vm.tiktok.com/ZMFJXXFEU/
 
@@ -254,7 +254,7 @@ https://vm.tiktok.com/ZMFJCCDm7/
 https://vm.tiktok.com/ZMFJ4RhsQ/
 
 
-### entrepreneur linkedin alt - ([joinentre](https://joinentre.com/))
+### Entrepreneur linkedin alt - ([joinentre](https://joinentre.com/))
 
 https://vm.tiktok.com/ZMFJt2CHt/
 
