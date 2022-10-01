@@ -14,6 +14,7 @@ https://vm.tiktok.com/ZMFe6xsKy/
 https://vm.tiktok.com/ZMFeY9uhm/
 
 ### Game to master pen tool - ([bezier.method](https://bezier.method.ac/))
+
 https://vm.tiktok.com/ZMFeYCyVX/
 
 
@@ -34,10 +35,12 @@ https://vm.tiktok.com/ZMFeRd4cU/
 https://vm.tiktok.com/ZMFeRYmHb/
 
 ### Pictory's powerful Artificial intelligence (AI) enables you to create and edit professional quality videos using text - ([pictory](https://pictory.ai/))
+
 https://vm.tiktok.com/ZMFJ4ATkr/
 
 ### AI software thag is torally gong to revolutionize how we communicate
 Clones ppl - ([synthesia](https://synthesia.io/))
+
 https://vm.tiktok.com/ZMFJpLQQv/
 
 
@@ -45,6 +48,7 @@ https://vm.tiktok.com/ZMFJpLQQv/
  - [awwwards](https://www.awwwards.com/)
  - [lapa.ninja](https://www.lapa.ninja/)
  - [landingfolio](https://www.landingfolio.com/)
+
 https://vm.tiktok.com/ZMFeRJ8XT/
 
 ### Removes noise from sound audio - ([pages.adobe](https://pages.adobe.com/shasta/))
@@ -101,6 +105,7 @@ https://vm.tiktok.com/ZMFJsprQD/
 
 
 [infogram](https://infogram.com/)
+
 https://vm.tiktok.com/ZMFJsqhEU/
 
 ### automation to watch a website - ([urlooker](https://urlooker.com/))
@@ -123,6 +128,7 @@ https://vm.tiktok.com/ZMFJ4Pu5c/
 ### Game to similate working for a company
 
 trywilco.com/allthecode
+
 https://vm.tiktok.com/ZMFJgvSne/
 
 
@@ -132,6 +138,7 @@ https://vm.tiktok.com/ZMFJgvSne/
  - [pixelhunter.io](https://pixelhunter.io/)
  - [squoosh.app](https://squoosh.app/)
  - [knowem](https://knowem.com/)
+
 https://vm.tiktok.com/ZMFJpAq98/
 
 ### MIT Open Courses - ([ocw.mit.edu](https://ocw.mit.edu/))
@@ -142,7 +149,9 @@ https://vm.tiktok.com/ZMFJ4hao9/
  - [grow.google](https://grow.google/certificates/#?modal_active=none)
  - [grow.google - data analytics](https://grow.google/certificates/data-analytics/#?modal_active=none)
  - [grow.google - it support](https://grow.google/certificates/it-support/#?modal_active=none)
+
 https://vm.tiktok.com/ZMFJ4Yw57/
+
 https://vm.tiktok.com/ZMFJ4AVe4/
 
 ### FREE custom automation tool to scrape data - ([bardeen](https://www.bardeen.ai/))
@@ -150,6 +159,7 @@ https://vm.tiktok.com/ZMFJ4AVe4/
 https://vm.tiktok.com/ZMFJ4LDP6/
 
 ### adds socail media in your website as a popup - ([getchipbot](https://getchipbot.com/))
+
 https://vm.tiktok.com/ZMFJXXFEU/
 
 ### Google sites - ([sites.google](https://sites.google.com/))
@@ -169,12 +179,14 @@ https://vm.tiktok.com/ZMFJXKA2M/
  - [privnote](https://privnote.com/)
 ### Amazon price tracker
  - [camelcamelcamel](https://es.camelcamelcamel.com/)
+
 https://vm.tiktok.com/ZMFJXv6S3/
 
 ### Check out these job boards for global opportunities! 
  - [weworkremotely](https://weworkremotely.com/)
  - [workingnomads](https://www.workingnomads.com/jobs)
  - [remoteineurope](https://remoteineurope.com/)
+
 https://vm.tiktok.com/ZMFJXb1Uw/
 
 ### Place to download software - ([igetintopc](https://igetintopc.com/))
@@ -188,6 +200,7 @@ https://vm.tiktok.com/ZMFJXGpSu/
  - [create.vista.com](https://create.vista.com/)
  - [fronty](https://fronty.com/)
  - [phase](https://phase.com/)
+
 https://vm.tiktok.com/ZMFJXEodU/
 
 ### Get title ideas - ([title-generator](https://www.title-generator.com/))
@@ -206,6 +219,7 @@ https://vm.tiktok.com/ZMFJX48r4/
  - [clipdrop.co](https://clipdrop.co/)
 ### The easiest way to extract and monitor data from any website.
  - [browse.ai](https://www.browse.ai/)
+
 https://vm.tiktok.com/ZMFJX5pKA/
 
 ### Create Hook ups - ([copy.ai](https://www.copy.ai/))
@@ -221,6 +235,7 @@ https://vm.tiktok.com/ZMFJx3JtH/
 [hacksplaining](https://www.hacksplaining.com/)
 [shiftsearch](https://shiftsearch.com/)
 [beautiful.ai](https://www.beautiful.ai/)
+
 https://vm.tiktok.com/ZMFJQV1kX/
 
 ### Animate drawings - ([sketch.metademolab](https://sketch.metademolab.com/))
@@ -233,7 +248,9 @@ https://vm.tiktok.com/ZMFJCTSMg/
  - [siteright](https://www.siteright.co/)
 ### Hunter lets you find professional email addresses in seconds
  - [hunter.io](https://hunter.io/)
+
 https://vm.tiktok.com/ZMFJCCDm7/
+
 https://vm.tiktok.com/ZMFJ4RhsQ/
 
 
@@ -260,6 +277,7 @@ https://vm.tiktok.com/ZMFeJ79xc/
 ### Create beautiful emails and landing pages, fast.
  - [beefree.io](https://beefree.io/)
  - [dronestock](https://dronestock.com/)
+
 https://vm.tiktok.com/ZMFeJJGvu/
 
 ### Facebook courses
@@ -267,6 +285,7 @@ https://vm.tiktok.com/ZMFeJJGvu/
  - [coursera - meta-front-end-developer](https://www.coursera.org/professional-certificates/meta-front-end-developer)
  - [coursera - meta-back-end-developer](https://www.coursera.org/professional-certificates/meta-back-end-developer)
  - [coursera - meta-database-engineer](https://www.coursera.org/professional-certificates/meta-database-engineer)
+
 https://vm.tiktok.com/ZMFJsmttv/
 
 
@@ -275,6 +294,7 @@ https://vm.tiktok.com/ZMFJsmttv/
  - [codemonkey](https://www.codemonkey.com/)
  - [codecombat](https://codecombat.com/)
  - [codingame](https://www.codingame.com/start)
+
 https://vm.tiktok.com/ZMFJp8ERs/
 
 
