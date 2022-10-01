@@ -352,3 +352,16 @@ https://www.tiktok.com/@resumeglow/video/7148362800132328709?is_from_webapp=1&se
 ### Clone your voice - ([resemble.ai](https://www.resemble.ai/))
 
 https://www.tiktok.com/@aylinihnen/video/7146619491319893253?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+### free courses on Machine learning and Artificial Intelligence - ([ai.google](https://ai.google/))
+
+https://www.tiktok.com/@thedigitalkingg/video/7148521126476532997?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+
+### Inspiration for you landingpages
+ - [greatlandingpagecopy](https://greatlandingpagecopy.com/)
+ - [emailtuna](https://emailtuna.com/)
+ - [cpgd.xyz](https://www.cpgd.xyz/)
+ - [saaslandingpage](https://saaslandingpage.com/)
+
+https://vm.tiktok.com/ZMF8PehfR/
