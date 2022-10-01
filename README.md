@@ -125,9 +125,7 @@ https://vm.tiktok.com/ZMFJpyHGr/
 
 https://vm.tiktok.com/ZMFJ4Pu5c/
 
-### Game to similate working for a company
-
-trywilco.com/allthecode
+### Game to similate working for a company - ([trywilco.com/allthecode](https://www.trywilco.com/invite?invitedBy=AllTheCode))
 
 https://vm.tiktok.com/ZMFJgvSne/
 
