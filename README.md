@@ -4,8 +4,8 @@ AI for making sounds
 beatoven.ai
 https://vm.tiktok.com/ZMFJ3h3EE/ 
 
-Getting questions on a topic
-[Getting questions on a topic](https://answerthepublic.com/)
+Getting questions on a topic - [answerthepublic](https://answerthepublic.com/)
+
 https://vm.tiktok.com/ZMFe6xsKy/
 
 remove background 
