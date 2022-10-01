@@ -86,12 +86,12 @@ https://vm.tiktok.com/ZMFJsQvBn/
 
 
 ### Create an online store in 5 minutes
-https://wolfeo.io/
-https://wolfeo.net/
+ - https://wolfeo.io/
+ - https://wolfeo.net/
 https://vm.tiktok.com/ZMFJsgjac/
 
 
->Here is a list of websites that will save you a lot of money because you would normally have to pay for the software PrePostSEO has over 95+ free tools like plagiarism checkers, paraphrasing tools and so on Tinywow which is literally one of my favorites can solve almost any problem with images, videos, pdfs, and a whole lot more iLovePDF has every tool adobe acrobat makes you pay for NeonTools lets you create trackable short links, landing pages and even analyses hashtags
+### Here is a list of websites that will save you a lot of money because you would normally have to pay for the software PrePostSEO has over 95+ free tools like plagiarism checkers, paraphrasing tools and so on Tinywow which is literally one of my favorites can solve almost any problem with images, videos, pdfs, and a whole lot more iLovePDF has every tool adobe acrobat makes you pay for NeonTools lets you create trackable short links, landing pages and even analyses hashtags
 
 https://www.prepostseo.com/
 https://tinywow.com/
