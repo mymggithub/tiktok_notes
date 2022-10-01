@@ -186,9 +186,9 @@ https://vm.tiktok.com/ZMFJXv6S3/
 
 https://vm.tiktok.com/ZMFJXb1Uw/
 
-### Place to download software - ([igetintopc](https://igetintopc.com/))
+<!-- ### Place to download software - ([igetintopc](https://igetintopc.com/))
 
-https://vm.tiktok.com/ZMFJXGpSu/
+https://vm.tiktok.com/ZMFJXGpSu/ -->
 
 
 ### 6 Design Gems for design
