@@ -103,8 +103,7 @@ https://vm.tiktok.com/ZMFJsgjac/
 
 https://vm.tiktok.com/ZMFJsprQD/
 
-
-[infogram](https://infogram.com/)
+### Create engaging infographics and reports in minutes - ([infogram](https://infogram.com/))
 
 https://vm.tiktok.com/ZMFJsqhEU/
 
