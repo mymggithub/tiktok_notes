@@ -329,7 +329,7 @@ https://www.tiktok.com/@creator_networking/video/7148914318862470446?is_from_web
 
 https://www.tiktok.com/@maker_max/video/7149195817201470762?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
 
-### OpenAI Speach recognition - ([whisper]((https://openai.com/blog/whisper/))
+### OpenAI Speach recognition - ([whisper](https://openai.com/blog/whisper/))
 
 https://www.tiktok.com/@lewismenelaws/video/7147342620807728390?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
 
