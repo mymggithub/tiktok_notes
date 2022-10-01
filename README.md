@@ -358,7 +358,7 @@ https://www.tiktok.com/@aylinihnen/video/7146619491319893253?is_from_webapp=1&se
 https://www.tiktok.com/@thedigitalkingg/video/7148521126476532997?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
 
 
-### Inspiration for you landingpages
+### Inspiration for landingpages
  - [greatlandingpagecopy](https://greatlandingpagecopy.com/)
  - [emailtuna](https://emailtuna.com/)
  - [cpgd.xyz](https://www.cpgd.xyz/)
