@@ -1,10 +1,11 @@
 # tiktok_notes
 
-AI for making sounds - ([beatoven](https://www.beatoven.ai/))
+#AI for making sounds
+ - ([beatoven](https://www.beatoven.ai/))
 
 https://vm.tiktok.com/ZMFJ3h3EE/ 
 
-Getting questions on a topic - [answerthepublic](https://answerthepublic.com/)
+Getting questions on a topic - ([answerthepublic](https://answerthepublic.com/))
 
 https://vm.tiktok.com/ZMFe6xsKy/
 
