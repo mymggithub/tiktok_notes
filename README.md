@@ -299,3 +299,55 @@ https://vm.tiktok.com/ZMFJp8ERs/
 ### Unlimited share funnels - ([groove](https://groove.cm/#Jq7CzGSrJ))
 
 https://vm.tiktok.com/ZMFJX3ccQ/
+
+
+### Designer for beginners - ([dribbble](https://dribbble.com/))
+
+https://www.tiktok.com/@nolanperk/video/7139912745633221930?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+### To get jobs that are 4 days a week - ([4dayweek](https://4dayweek.io/))
+
+https://www.tiktok.com/@allthecode/video/7148812341365181701?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+
+### Copy ads for free - ([unbounce smart copy](https://unbounce.com/product/smart-copy/))
+
+https://www.tiktok.com/@trysmartcopy/video/7147496198977490218?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+### Best Free Websites for Small Businesses Part 7
+ - [Figma - connects everyone in the design process](https://www.figma.com/)
+ - [Buzzsumo - Find the content that performs best](https://buzzsumo.com/)
+ - [Partyround - Automate fundrasing](https://www.partyround.com/)
+ - [Tally - simplest way to create forms](https://tally.so/)
+ - [Splitbee - platform analytics](https://splitbee.io/)
+
+https://www.tiktok.com/@creator_networking/video/7148914318862470446?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+
+### Text To Spokesperson Video In Minutes - ([movio](https://www.movio.la/))
+
+https://www.tiktok.com/@maker_max/video/7149195817201470762?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+### OpenAI Speach recognition - ([whisper]((https://openai.com/blog/whisper/)))
+
+https://www.tiktok.com/@lewismenelaws/video/7147342620807728390?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+### AI Resume Builder ([resumeglow](https://resumeglow.com/))
+
+https://www.tiktok.com/@resumeglow/video/7148362800132328709?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+
+
+### Best Free Websites for Small Businesses Part 6
+ - [producthunt](https://www.producthunt.com/)
+ - [marketingexamples](https://marketingexamples.com/)
+ - [manychat - automate facebook and instagram](https://manychat.com/)
+ - [trello - manage projects](https://trello.com/en)
+ - [mailerlite - free email marketing](https://www.mailerlite.com/)
+
+ https://www.tiktok.com/@creator_networking/video/7148539820527078699?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
+
+
+### Clone your voice - ([resemble.ai](https://www.resemble.ai/))
+
+https://www.tiktok.com/@aylinihnen/video/7146619491319893253?is_from_webapp=1&sender_device=pc&web_id=7146796923608024582
