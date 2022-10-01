@@ -1,4 +1,4 @@
-# tiktok_notes
+# Tiktok Notes
 
 ### AI for making sounds - ([beatoven](https://www.beatoven.ai/))
 
