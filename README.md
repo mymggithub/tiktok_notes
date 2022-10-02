@@ -298,10 +298,10 @@ https://vm.tiktok.com/ZMFJx3JtH/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/041.jpg?raw=true)](https://vm.tiktok.com/ZMFJx3JtH/)
 
 
-
-[hacksplaining](https://www.hacksplaining.com/)
-[shiftsearch](https://shiftsearch.com/)
-[beautiful.ai](https://www.beautiful.ai/)
+### Helpful Websites Part 10
+ - [hacksplaining](https://www.hacksplaining.com/)
+ - [shiftsearch](https://shiftsearch.com/)
+ - [beautiful.ai](https://www.beautiful.ai/)
 
 https://vm.tiktok.com/ZMFJQV1kX/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/042.jpg?raw=true)](https://vm.tiktok.com/ZMFJQV1kX/)
