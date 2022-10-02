@@ -484,3 +484,16 @@ https://vm.tiktok.com/ZMF8PehfR/
 
 https://vm.tiktok.com/ZMFRNxGTb/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/066.jpg?raw=true)](https://vm.tiktok.com/ZMFRNxGTb/)
+
+### Awesome free scheduling and meeting tool - ([zcal.co](https://zcal.co/))
+
+https://vm.tiktok.com/ZMFRNxGTb/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/066.jpg?raw=true)](https://vm.tiktok.com/ZMFRNxGTb/)
+
+### @ websites to learn web3
+
+ - [cryptozombies.io](https://cryptozombies.io/)
+ - [buildspace.so](https://buildspace.so/)
+
+https://vm.tiktok.com/ZMF8PjN34/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/067.jpg?raw=true)](https://vm.tiktok.com/ZMF8PjN34/)
