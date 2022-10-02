@@ -526,3 +526,14 @@ https://vm.tiktok.com/ZMF8PMa3J/
 
 https://vm.tiktok.com/ZMF8f7DPr/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/071.jpg?raw=true)](https://vm.tiktok.com/ZMF8f7DPr/)
+
+### 5 websites I wish I knew
+
+ - [contra - commission free freelance website](https://contra.com/)
+ - [hashtagstack - free hashtag stack](https://hashtagstack.com/)
+ - [answersocrates - You have answers. We have questions](https://answersocrates.com/)
+ - [ncs](https://ncs.io/)
+ - [typedream - build web pages free](https://digitaldefynd.com/)
+
+https://vm.tiktok.com/ZMFRHcLyo/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/072.jpg?raw=true)](https://vm.tiktok.com/ZMFRHcLyo/)
