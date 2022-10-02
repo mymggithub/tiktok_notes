@@ -490,10 +490,22 @@ https://vm.tiktok.com/ZMFRNxGTb/
 https://vm.tiktok.com/ZMFRNxGTb/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/066.jpg?raw=true)](https://vm.tiktok.com/ZMFRNxGTb/)
 
-### @ websites to learn web3
+### Websites to learn web3
 
  - [cryptozombies.io](https://cryptozombies.io/)
  - [buildspace.so](https://buildspace.so/)
 
 https://vm.tiktok.com/ZMF8PjN34/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/067.jpg?raw=true)](https://vm.tiktok.com/ZMF8PjN34/)
+
+
+### Best Free Websites for Small Businesses Part 3
+
+ - [smartmockups](https://smartmockups.com/)
+ - [notion.so - free workspace](https://www.notion.so/)
+ - [glideapps - free no code websites and apps](https://www.glideapps.com/)
+ - [testimonial.to](https://testimonial.to/)
+ - [typedream - build web pages free](https://typedream.com/)
+
+https://vm.tiktok.com/ZMF8PfqkE/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/068.jpg?raw=true)](https://vm.tiktok.com/ZMF8PjN34/)
