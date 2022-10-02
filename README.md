@@ -258,7 +258,6 @@ https://vm.tiktok.com/ZMFJXGpSu/ -->
 
 https://vm.tiktok.com/ZMFJXEodU/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/036.jpg?raw=true)](https://vm.tiktok.com/ZMFJXEodU/)
-yes
 
 
 ### Get title ideas - ([title-generator](https://www.title-generator.com/))
