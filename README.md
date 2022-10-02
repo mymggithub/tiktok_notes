@@ -241,6 +241,8 @@ https://vm.tiktok.com/ZMFJXv6S3/
  - [remoteineurope](https://remoteineurope.com/)
 
 https://vm.tiktok.com/ZMFJXb1Uw/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/035.jpg?raw=true)](https://vm.tiktok.com/ZMFJXb1Uw/)
+
 
 <!-- ### Place to download software - ([igetintopc](https://igetintopc.com/))
 
@@ -255,15 +257,22 @@ https://vm.tiktok.com/ZMFJXGpSu/ -->
  - [phase](https://phase.com/)
 
 https://vm.tiktok.com/ZMFJXEodU/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/036.jpg?raw=true)](https://vm.tiktok.com/ZMFJXEodU/)
+yes
+
 
 ### Get title ideas - ([title-generator](https://www.title-generator.com/))
 
 https://vm.tiktok.com/ZMFJXQRT8/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/037.jpg?raw=true)](https://vm.tiktok.com/ZMFJXQRT8/)
+
 
 
 ### Repost videos to other places - ([repurpose.io](https://repurpose.io/))
 
 https://vm.tiktok.com/ZMFJX48r4/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/038.jpg?raw=true)](https://vm.tiktok.com/ZMFJX48r4/)
+
 
 
 ### The Only AI Tool To Create Animation Videos Using Text
@@ -274,15 +283,20 @@ https://vm.tiktok.com/ZMFJX48r4/
  - [browse.ai](https://www.browse.ai/)
 
 https://vm.tiktok.com/ZMFJX5pKA/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/039.jpg?raw=true)](https://vm.tiktok.com/ZMFJX5pKA/)
+
 
 ### Create Hook ups - ([copy.ai](https://www.copy.ai/))
 
 https://vm.tiktok.com/ZMFJXHyPB/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/040.jpg?raw=true)](https://vm.tiktok.com/ZMFJXHyPB/)
 
 
 ### All-in-one audio & video editing, as easy as a doc. - ([descript](https://www.descript.com/))
 
 https://vm.tiktok.com/ZMFJx3JtH/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/041.jpg?raw=true)](https://vm.tiktok.com/ZMFJx3JtH/)
+
 
 
 [hacksplaining](https://www.hacksplaining.com/)
@@ -290,6 +304,8 @@ https://vm.tiktok.com/ZMFJx3JtH/
 [beautiful.ai](https://www.beautiful.ai/)
 
 https://vm.tiktok.com/ZMFJQV1kX/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/042.jpg?raw=true)](https://vm.tiktok.com/ZMFJQV1kX/)
+
 
 ### Animate drawings - ([sketch.metademolab](https://sketch.metademolab.com/))
 
