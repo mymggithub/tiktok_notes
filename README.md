@@ -435,6 +435,10 @@ https://vm.tiktok.com/ZMFNauyHo/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/060.jpg?raw=true)](https://vm.tiktok.com/ZMFNauyHo/)
 
 
+https://vm.tiktok.com/ZMF8PymF3/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/060-1.jpg?raw=true)](https://vm.tiktok.com/ZMF8PymF3/)
+
+
 ### AI Resume Builder ([resumeglow](https://resumeglow.com/))
 
 https://vm.tiktok.com/ZMFNayYGT/
