@@ -146,18 +146,26 @@ https://vm.tiktok.com/ZMFJpFSE5/
 ### Allows you to learn anything you want with roadmaps - ([neuton.app](https://neuton.app/))
 
 https://vm.tiktok.com/ZMFJpaq12/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/021.jpg?raw=true)](https://vm.tiktok.com/ZMFJpaq12/)
+
 
 ### AI for making pictures - ([craiyon](https://www.craiyon.com/))
 
 https://vm.tiktok.com/ZMFJpyHGr/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/022.jpg?raw=true)](https://vm.tiktok.com/ZMFJpyHGr/)
+
 
 ### Land your dream job at a top tech company (mentors) - ([pathrise](https://www.pathrise.com/))
 
 https://vm.tiktok.com/ZMFJ4Pu5c/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/023.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4Pu5c/)
+
 
 ### Game to similate working for a company - ([trywilco.com/allthecode](https://www.trywilco.com/invite?invitedBy=AllTheCode))
 
 https://vm.tiktok.com/ZMFJgvSne/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/024.jpg?raw=true)](https://vm.tiktok.com/ZMFJgvSne/)
+
 
 
 ### Websites that feel illegal to know because thy do some crazy things Taylorbrands.com, create a professional brand logo in in under a few minutes.
@@ -168,10 +176,14 @@ https://vm.tiktok.com/ZMFJgvSne/
  - [knowem](https://knowem.com/)
 
 https://vm.tiktok.com/ZMFJpAq98/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/025.jpg?raw=true)](https://vm.tiktok.com/ZMFJpAq98/)
+
 
 ### MIT Open Courses - ([ocw.mit.edu](https://ocw.mit.edu/))
 
 https://vm.tiktok.com/ZMFJ4hao9/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/026.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4hao9/)
+
 
 ### Grow With Google
  - [grow.google](https://grow.google/certificates/#?modal_active=none)
