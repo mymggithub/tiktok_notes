@@ -107,6 +107,8 @@ https://vm.tiktok.com/ZMFeJFDQa/
 ### How to plan YouTube videos without showing your face - ([jasper](https://www.jasper.ai/))
 
 https://vm.tiktok.com/ZMFJsQvBn/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/016.jpg?raw=true)](https://vm.tiktok.com/ZMFJsQvBn/)
+
 
 
 ### Create an online store in 5 minutes
@@ -114,6 +116,8 @@ https://vm.tiktok.com/ZMFJsQvBn/
  - [wolfeo.net](https://wolfeo.net/)
 
 https://vm.tiktok.com/ZMFJsgjac/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/017.jpg?raw=true)](https://vm.tiktok.com/ZMFJsgjac/)
+
 
 
 ### Here is a list of websites that will save you a lot of money because you would normally have to pay for the software PrePostSEO has over 95+ free tools like plagiarism checkers, paraphrasing tools and so on Tinywow which is literally one of my favorites can solve almost any problem with images, videos, pdfs, and a whole lot more iLovePDF has every tool adobe acrobat makes you pay for NeonTools lets you create trackable short links, landing pages and even analyses hashtags
@@ -124,14 +128,19 @@ https://vm.tiktok.com/ZMFJsgjac/
  - [neontools](https://neontools.io/)
 
 https://vm.tiktok.com/ZMFJsprQD/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/018.jpg?raw=true)](https://vm.tiktok.com/ZMFJsprQD/)
+
 
 ### Create engaging infographics and reports in minutes - ([infogram](https://infogram.com/))
 
 https://vm.tiktok.com/ZMFJsqhEU/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/019.jpg?raw=true)](https://vm.tiktok.com/ZMFJsqhEU/)
+
 
 ### Automation to watch a website - ([urlooker](https://urlooker.com/))
 
 https://vm.tiktok.com/ZMFJpFSE5/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/020.jpg?raw=true)](https://vm.tiktok.com/ZMFJpFSE5/)
 
 
 ### Allows you to learn anything you want with roadmaps - ([neuton.app](https://neuton.app/))
