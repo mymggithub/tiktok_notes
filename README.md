@@ -191,28 +191,39 @@ https://vm.tiktok.com/ZMFJ4hao9/
  - [grow.google - it support](https://grow.google/certificates/it-support/#?modal_active=none)
 
 https://vm.tiktok.com/ZMFJ4Yw57/
-
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/027.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4Yw57/)
 https://vm.tiktok.com/ZMFJ4AVe4/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/028.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4AVe4/)
 
 ### FREE custom automation tool to scrape data - ([bardeen](https://www.bardeen.ai/))
 
 https://vm.tiktok.com/ZMFJ4LDP6/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/029.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4LDP6/)
+
 
 ### Adds socail media in your website as a popup - ([getchipbot](https://getchipbot.com/))
 
 https://vm.tiktok.com/ZMFJXXFEU/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/030.jpg?raw=true)](https://vm.tiktok.com/ZMFJXXFEU/)
+
 
 ### Google sites - ([sites.google](https://sites.google.com/))
 
 https://vm.tiktok.com/ZMFJ4eudm/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/031.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4eudm/)
+
 
 ### Remove watermarks from videos - ([online-video-cutter](https://online-video-cutter.com/remove-logo))
 
 https://vm.tiktok.com/ZMFJXbJS5/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/032.jpg?raw=true)](https://vm.tiktok.com/ZMFJXbJS5/)
+
 
 ### Vocal remover - ([vocalremover](https://vocalremover.org/))
 
 https://vm.tiktok.com/ZMFJXKA2M/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/033.jpg?raw=true)](https://vm.tiktok.com/ZMFJXKA2M/)
+
 
 
 ### PrivnoteSend notes that will self-destruct after being read.
@@ -221,6 +232,8 @@ https://vm.tiktok.com/ZMFJXKA2M/
  - [camelcamelcamel](https://es.camelcamelcamel.com/)
 
 https://vm.tiktok.com/ZMFJXv6S3/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/034.jpg?raw=true)](https://vm.tiktok.com/ZMFJXv6S3/)
+
 
 ### Check out these job boards for global opportunities! 
  - [weworkremotely](https://weworkremotely.com/)
