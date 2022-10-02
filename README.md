@@ -537,3 +537,9 @@ https://vm.tiktok.com/ZMF8f7DPr/
 
 https://vm.tiktok.com/ZMFRHcLyo/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/072.jpg?raw=true)](https://vm.tiktok.com/ZMFRHcLyo/)
+
+
+### Chrome Extensions  - ([Save image as Type](https://chrome.google.com/webstore/detail/save-image-as-type/gabfmnliflodkdafenbcpjdlppllnemd?hl=en))
+
+https://vm.tiktok.com/ZMFRHVFdB/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/073.jpg?raw=true)](https://vm.tiktok.com/ZMFRHVFdB/)
