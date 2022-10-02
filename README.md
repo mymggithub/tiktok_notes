@@ -48,12 +48,14 @@ https://vm.tiktok.com/ZMFeRYmHb/
 ### Pictory's powerful Artificial intelligence (AI) enables you to create and edit professional quality videos using text - ([pictory](https://pictory.ai/))
 
 https://vm.tiktok.com/ZMFJ4ATkr/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/008.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4ATkr/)
+
 
 ### AI software thag is totally gong to revolutionize how we communicate
 Clones ppl - ([synthesia](https://synthesia.io/))
 
 https://vm.tiktok.com/ZMFJpLQQv/
-[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/008.jpg?raw=true)](https://vm.tiktok.com/ZMFJpLQQv/)
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/008-1.jpg?raw=true)](https://vm.tiktok.com/ZMFJpLQQv/)
 
 
 ### Web insperation 
