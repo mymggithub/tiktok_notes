@@ -9,14 +9,20 @@ https://vm.tiktok.com/ZMFJ3h3EE/
 ### Getting questions on a topic - ([answerthepublic](https://answerthepublic.com/))
 
 https://vm.tiktok.com/ZMFe6xsKy/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/002.jpg?raw=true)](https://vm.tiktok.com/ZMFe6xsKy/)
+
 
 ### Remove background - ([remove.bg](https://www.remove.bg/))
 
 https://vm.tiktok.com/ZMFeY9uhm/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/003.jpg?raw=true)](https://vm.tiktok.com/ZMFeY9uhm/)
+
 
 ### Game to master pen tool - ([bezier.method](https://bezier.method.ac/))
 
 https://vm.tiktok.com/ZMFeYCyVX/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/004.jpg?raw=true)](https://vm.tiktok.com/ZMFeYCyVX/)
+
 
 
 ### Cross-Device Testing - ([blisk](https://blisk.io/))
