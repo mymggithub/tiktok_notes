@@ -328,21 +328,29 @@ https://vm.tiktok.com/ZMFJ4RhsQ/
 ### Entrepreneur linkedin alt - ([joinentre](https://joinentre.com/))
 
 https://vm.tiktok.com/ZMFJt2CHt/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/046.jpg?raw=true)](https://vm.tiktok.com/ZMFJt2CHt/)
+
 
 
 ### Writing Assistant - ([paragraphai](https://paragraphai.com/))
 
 https://vm.tiktok.com/ZMFJCqEhV/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/047.jpg?raw=true)](https://vm.tiktok.com/ZMFJCqEhV/)
+
 
 
 ### Create CSS Animation Instantly - ([css-brio](https://chrome.google.com/webstore/detail/css-brio/jobnjchaapmooplimahhnailldelmmed))
 
 https://vm.tiktok.com/ZMFeJ3eQE/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/048.jpg?raw=true)](https://vm.tiktok.com/ZMFeJ3eQE/)
+
 
 
 ### Look at sytems - ([designsystems](https://www.designsystems.com/open-design-systems/))
 
 https://vm.tiktok.com/ZMFeJ79xc/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/049.jpg?raw=true)](https://vm.tiktok.com/ZMFeJ79xc/)
+
 
 
 ### Create beautiful emails and landing pages, fast.
@@ -350,6 +358,8 @@ https://vm.tiktok.com/ZMFeJ79xc/
  - [dronestock](https://dronestock.com/)
 
 https://vm.tiktok.com/ZMFeJJGvu/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/050.jpg?raw=true)](https://vm.tiktok.com/ZMFeJJGvu/)
+
 
 ### Facebook courses
  - [coursera meta](https://www.coursera.org/meta)
@@ -358,6 +368,8 @@ https://vm.tiktok.com/ZMFeJJGvu/
  - [coursera - meta-database-engineer](https://www.coursera.org/professional-certificates/meta-database-engineer)
 
 https://vm.tiktok.com/ZMFJsmttv/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/051.jpg?raw=true)](https://vm.tiktok.com/ZMFJsmttv/)
+
 
 
 
