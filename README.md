@@ -509,3 +509,8 @@ https://vm.tiktok.com/ZMF8PjN34/
 
 https://vm.tiktok.com/ZMF8PfqkE/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/068.jpg?raw=true)](https://vm.tiktok.com/ZMF8PjN34/)
+
+### Track social media  - ([make](https://www.make.com/))
+
+https://vm.tiktok.com/ZMF8PNGGb/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/069.jpg?raw=true)](https://vm.tiktok.com/ZMF8PNGGb/)
