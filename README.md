@@ -3,7 +3,7 @@
 ### AI for making sounds - ([beatoven](https://www.beatoven.ai/))
 
 https://vm.tiktok.com/ZMFJ3h3EE/ 
-[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/001.jpg?raw=true)](https://www.beatoven.ai/)
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/001.jpg?raw=true)](https://vm.tiktok.com/ZMFJ3h3EE/)
 <!-- [![This is an image](https://myoctocat.com/assets/images/base-octocat.svg)](https://www.beatoven.ai/) -->
 
 ### Getting questions on a topic - ([answerthepublic](https://answerthepublic.com/))
