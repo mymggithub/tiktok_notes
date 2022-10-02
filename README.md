@@ -514,3 +514,9 @@ https://vm.tiktok.com/ZMF8PfqkE/
 
 https://vm.tiktok.com/ZMF8PNGGb/
 [![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/069.jpg?raw=true)](https://vm.tiktok.com/ZMF8PNGGb/)
+
+
+### Landing Pages  - ([btw.so](https://www.btw.so/marketing/landing-page-examples))
+
+https://vm.tiktok.com/ZMF8PMa3J/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/070.jpg?raw=true)](https://vm.tiktok.com/ZMF8PMa3J/)
