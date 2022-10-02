@@ -426,14 +426,19 @@ https://vm.tiktok.com/ZMFNasTmW/
 ### Text To Spokesperson Video In Minutes - ([movio](https://www.movio.la/))
 
 https://vm.tiktok.com/ZMFNaQS3S/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/059.jpg?raw=true)](https://vm.tiktok.com/ZMFNaQS3S/)
+
 
 ### OpenAI Speach recognition - ([whisper](https://openai.com/blog/whisper/))
 
 https://vm.tiktok.com/ZMFNauyHo/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/060.jpg?raw=true)](https://vm.tiktok.com/ZMFNauyHo/)
+
 
 ### AI Resume Builder ([resumeglow](https://resumeglow.com/))
 
 https://vm.tiktok.com/ZMFNayYGT/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/061.jpg?raw=true)](https://vm.tiktok.com/ZMFNayYGT/)
 
 
 
@@ -445,15 +450,20 @@ https://vm.tiktok.com/ZMFNayYGT/
  - [mailerlite - free email marketing](https://www.mailerlite.com/)
 
 https://vm.tiktok.com/ZMFNagfAr/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/062.jpg?raw=true)](https://vm.tiktok.com/ZMFNagfAr/)
+
 
 
 ### Clone your voice - ([resemble.ai](https://www.resemble.ai/))
 
 https://vm.tiktok.com/ZMFNaPwc1/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/063.jpg?raw=true)](https://vm.tiktok.com/ZMFNaPwc1/)
+
 
 ### free courses on Machine learning and Artificial Intelligence - ([ai.google](https://ai.google/))
 
 https://vm.tiktok.com/ZMFNayCEW/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/064.jpg?raw=true)](https://vm.tiktok.com/ZMFNayCEW/)
 
 
 ### Inspiration for landingpages
@@ -463,3 +473,4 @@ https://vm.tiktok.com/ZMFNayCEW/
  - [saaslandingpage](https://saaslandingpage.com/)
 
 https://vm.tiktok.com/ZMF8PehfR/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/065.jpg?raw=true)](https://vm.tiktok.com/ZMF8PehfR/)
