@@ -379,12 +379,15 @@ https://vm.tiktok.com/ZMFJsmttv/
  - [codingame](https://www.codingame.com/start)
 
 https://vm.tiktok.com/ZMFJp8ERs/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/052.jpg?raw=true)](https://vm.tiktok.com/ZMFJp8ERs/)
 
 
 
 ### Unlimited share funnels - ([groove](https://groove.cm/#Jq7CzGSrJ))
 
 https://vm.tiktok.com/ZMFJX3ccQ/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/053.jpg?raw=true)](https://vm.tiktok.com/ZMFJX3ccQ/)
+
 
 
 ### Designer for beginners - ([dribbble](https://dribbble.com/))
