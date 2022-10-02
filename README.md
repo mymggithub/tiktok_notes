@@ -91,6 +91,8 @@ https://vm.tiktok.com/ZMFeeqrGU/
 ### Scrape data from youtube - ([phantombuster](https://phantombuster.com/))
 
 https://vm.tiktok.com/ZMFeJVtuc/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/014.jpg?raw=true)](https://vm.tiktok.com/ZMFeJVtuc/)
+
 
 ### Cyber Security
  - [edx](https://www.edx.org/)
@@ -99,6 +101,7 @@ https://vm.tiktok.com/ZMFeJVtuc/
  - [cybrary](https://www.cybrary.it/)
 
 https://vm.tiktok.com/ZMFeJFDQa/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/015.jpg?raw=true)](https://vm.tiktok.com/ZMFeJFDQa/)
 
 
 ### How to plan YouTube videos without showing your face - ([jasper](https://www.jasper.ai/))
