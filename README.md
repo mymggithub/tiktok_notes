@@ -483,4 +483,4 @@ https://vm.tiktok.com/ZMF8PehfR/
 ### Awesome free scheduling and meeting tool - ([zcal.co](https://zcal.co/))
 
 https://vm.tiktok.com/ZMFRNxGTb/
-[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/065.jpg?raw=true)](https://vm.tiktok.com/ZMFRNxGTb/)
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/066.jpg?raw=true)](https://vm.tiktok.com/ZMFRNxGTb/)
