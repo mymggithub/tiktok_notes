@@ -30,16 +30,20 @@ https://vm.tiktok.com/ZMFeYCyVX/
 ### ImportYeti finds suppliers & manufacturers based on actionable data - ([importyeti](https://www.importyeti.com/))
 
 https://vm.tiktok.com/ZMFeRk3kE/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/005.jpg?raw=true)](https://vm.tiktok.com/ZMFeRk3kE/)
 
 
 ### All in one funnel - ([systeme.io](https://systeme.io/))
 
 https://vm.tiktok.com/ZMFeRd4cU/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/006.jpg?raw=true)](https://vm.tiktok.com/ZMFeRk3kE/)
 
 
 ### Youtube summarizer - ([quillbot](https://quillbot.com/summarize))
 
 https://vm.tiktok.com/ZMFeRYmHb/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/007.jpg?raw=true)](https://vm.tiktok.com/ZMFeRYmHb/)
+
 
 ### Pictory's powerful Artificial intelligence (AI) enables you to create and edit professional quality videos using text - ([pictory](https://pictory.ai/))
 
@@ -49,6 +53,7 @@ https://vm.tiktok.com/ZMFJ4ATkr/
 Clones ppl - ([synthesia](https://synthesia.io/))
 
 https://vm.tiktok.com/ZMFJpLQQv/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/008.jpg?raw=true)](https://vm.tiktok.com/ZMFJpLQQv/)
 
 
 ### Web insperation 
@@ -57,10 +62,12 @@ https://vm.tiktok.com/ZMFJpLQQv/
  - [landingfolio](https://www.landingfolio.com/)
 
 https://vm.tiktok.com/ZMFeRJ8XT/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/009.jpg?raw=true)](https://vm.tiktok.com/ZMFeRJ8XT/)
 
 ### Removes noise from sound audio - ([pages.adobe](https://pages.adobe.com/shasta/))
 
 https://vm.tiktok.com/ZMFJsxmfa/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/010.jpg?raw=true)](https://vm.tiktok.com/ZMFJsxmfa/)
 
 ### Anwser questions in quora - ([trialjasper](https://trialjasper.com/))
 
