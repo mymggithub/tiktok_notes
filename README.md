@@ -72,15 +72,20 @@ https://vm.tiktok.com/ZMFJsxmfa/
 ### Anwser questions in quora - ([trialjasper](https://trialjasper.com/))
 
 https://vm.tiktok.com/ZMFJsuhTD/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/011.jpg?raw=true)](https://vm.tiktok.com/ZMFJsuhTD/)
+
 
 ### Find the owner of a phone now - ([intelx](https://intelx.io/))
 
 https://vm.tiktok.com/ZMFeeaSd1/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/012.jpg?raw=true)](https://vm.tiktok.com/ZMFeeaSd1/)
+
 
 
 ### Trying to understand a new codebase? Let Documatic translate and create diagrams to help you out - ([documatic](https://www.documatic.com/))
 
 https://vm.tiktok.com/ZMFeeqrGU/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/013.jpg?raw=true)](https://vm.tiktok.com/ZMFeeqrGU/)
 
 
 ### Scrape data from youtube - ([phantombuster](https://phantombuster.com/))
