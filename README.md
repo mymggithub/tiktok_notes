@@ -309,6 +309,8 @@ https://vm.tiktok.com/ZMFJQV1kX/
 ### Animate drawings - ([sketch.metademolab](https://sketch.metademolab.com/))
 
 https://vm.tiktok.com/ZMFJCTSMg/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/043.jpg?raw=true)](https://vm.tiktok.com/ZMFJCTSMg/)
+
 
 ### Welcome to Quiver, a next-generation stock research platform for retail investors.
  - [quiverquant](https://www.quiverquant.com/)
@@ -318,9 +320,10 @@ https://vm.tiktok.com/ZMFJCTSMg/
  - [hunter.io](https://hunter.io/)
 
 https://vm.tiktok.com/ZMFJCCDm7/
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/044.jpg?raw=true)](https://vm.tiktok.com/ZMFJCCDm7/)
 
 https://vm.tiktok.com/ZMFJ4RhsQ/
-
+[![This is an image](https://github.com/mymggithub/tiktok_notes/blob/main/pictures/045.jpg?raw=true)](https://vm.tiktok.com/ZMFJ4RhsQ/)
 
 ### Entrepreneur linkedin alt - ([joinentre](https://joinentre.com/))
 
